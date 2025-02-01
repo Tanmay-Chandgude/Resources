@@ -1,1 +1,1 @@
-Upsc cds prep material
+UPSC CDSE prep material
